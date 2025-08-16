@@ -23,5 +23,4 @@ Dr. Lakhvir Singh Khana, Incharge – CML, delivered a talk on the significance 
 The auditorium sessions on Day 1 provided students with valuable knowledge, motivation, and resources to enhance both their academic and personal growth.
 
 
-Agar tum chaho to main isme photos ke liye space ka placeholder bhi rakh dunga taaki tum likhte waqt images bhi add kar sako.
-Kya mai tumhe us format me de du?
+

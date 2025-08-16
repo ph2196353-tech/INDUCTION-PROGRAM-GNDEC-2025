@@ -21,3 +21,38 @@ Dr. Lakhvir Singh Khana, Incharge – CML, delivered a talk on the significance 
 
 
 The auditorium sessions on Day 1 provided students with valuable knowledge, motivation, and resources to enhance both their academic and personal growth.
+
+GND Engineering College (GNDEC) – CSE & IT Department
+Induction Program – Day 2 Report
+Venue: Auditorium
+Date: 07/08/2025
+
+1. Introduction:
+Day 2 of the induction program for first-year CSE and IT students focused on academic orientation and understanding examination conduct, student welfare, and departmental guidance. The sessions provided insights into college policies and expectations from students.
+
+2. Schedule & Activities:
+
+Time	Activity	Speaker	Venue
+9:30 AM – 10:30 AM	Lecture	Dr. Amit (Incharge-DMC)	Auditorium
+10:30 AM – 11:30 AM	Lecture	Dr. Parminder Singh (Dean-Student Welfare)	Auditorium
+11:30 AM – 12:30 PM	Lecture on "Conduct of Examination"	Dr. Randhir Singh	Auditorium
+
+3. Key Highlights:
+
+Dr. Amit: Guided students about departmental procedures, academic discipline, and resources available in DMC.
+
+Dr. Parminder Singh: Focused on student welfare, support systems, and maintaining a balanced college life.
+
+Dr. Randhir Singh: Explained rules, regulations, and protocols for examinations to ensure transparency and fairness.
+
+4. Conclusion:
+Day 2 successfully oriented students about academic procedures, student welfare initiatives, and examination conduct. Students actively participated in the sessions and gained a clear understanding of departmental and college expectations.
+
+5. Recommendations:
+
+Maintain regular communication channels between students and faculty for academic guidance.
+
+Conduct follow-up sessions or workshops for examination preparation and academic ethics.
+
+Designation: Student / Coordinator
+Date: 07/08/2025
